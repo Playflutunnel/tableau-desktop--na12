@@ -1,4 +1,4 @@
-# 
+# exclusive Jupyter Notebook for PC | Jupyter Notebook for Windows Module | data-analysis + notebook-interface offers the most advanced Jupyter Notebook for PC | Jupyter Notebook
 
 
 
